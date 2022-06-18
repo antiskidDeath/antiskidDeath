@@ -1,4 +1,3 @@
-( DONT CHANGE PNG TO ANY OTHER FILE )
 Discord: death | Anti-Skid#9479
 
 
